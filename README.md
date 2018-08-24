@@ -1,4 +1,4 @@
-##TrashhCashh
+<h1>TrashhCashh</h1>
 
 TRASHHCASHH is a private firm and our main aim is to solve one of the biggest problem prevailing in our country that is Waste Management. The hasty growth of population, Disorganization of cities and lack of awareness among people has become a major part which needs to be solved. To maintain the waste management of a country whose population is 1.5bn and counting you need a plan that can be executed. Trashhcashh helps you not only to generate money from the waste but it also helps you get rid of it. 
 
